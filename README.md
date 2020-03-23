@@ -1,4 +1,6 @@
 # Hola-Gitty
 Completion of tutorial !
 Hello Humans,
-Speaking of Humans, I am a Human too, That's splendid !
+Hey Hoooomans,
+Hie Hooomanaa,
+Hey, Why ain't you replying?
